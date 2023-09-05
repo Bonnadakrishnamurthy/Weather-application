@@ -1,1 +1,1 @@
-link of demo video: https://clipchamp.com/watch/CqvmnN3fyYZ
+link of demo video: https://youtu.be/_-QBR3OOL-w
